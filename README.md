@@ -1,0 +1,1 @@
+Joseph Vijay Chandrasekhar, known mononymously as Vijay, is an Indian actor, dancer, playback singer and philanthropist who works predominantly in Tamil cinema and also appeared in other Indian languages films. Vijay is the highest paid actor in South India.
